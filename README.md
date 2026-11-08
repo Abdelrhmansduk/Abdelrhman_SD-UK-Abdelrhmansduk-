@@ -24,9 +24,7 @@ I'm interested in building innovative digital solutions that combine software de
 Building useful technology, solving real-world problems, and continuously learning.
 
 ### Connect With Me
-- LinkedIn: [www.linkedin.com/in/abdelrhman-abusalif-641001259
-
-]
+- LinkedIn: [www.linkedin.com/in/abdelrhman-abusalif-641001259]
 
 ---
 
